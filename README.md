@@ -152,7 +152,7 @@
 
 [foto.ru](https://club.foto.ru/forum/36/743332)
 
-## Новые ответы на форумах
+## Новые ответы на форумах и блогах
 
 [mama.ru](https://mama.ru/forums/theme/kupit-puhovik-zhenskij-v-internet-magazine/)
 
@@ -196,4 +196,6 @@
 
 [korden.org](https://korden.org/companies/44584)
 
-
+[youtube.com 1](https://www.youtube.com/watch?v=NhNMVhxlgPI)  
+[youtube.com 2](https://www.youtube.com/watch?v=eX4jqvhObeo)  
+[youtube.com 3](https://www.youtube.com/watch?v=U5X06X1orhk)
