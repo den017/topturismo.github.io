@@ -1,5 +1,11 @@
 # Новые добавления в каталоги организаций
 
+[rusfirm.biz](https://rusfirm.biz/i-1388479)  
+[feech.org](https://gazety-i-jurnaly.feech.org/moskva/org/4254937)  
+[телефонырф.рф](https://xn--e1aarjenitd2e.xn--p1ai/%D1%86%D0%B5%D0%BD%D1%82%D1%80/%D0%BC%D0%BE%D1%81%D0%BA%D0%B2%D0%B0/%D1%84%D0%B8%D1%80%D0%BC%D0%B0/%D0%B6%D1%83%D1%80%D0%BD%D0%B0%D0%BB-dress)  
+[spravka.me](https://moscow.spravka.me/firm/jurnal_dress)  
+[begeton.com](https://begeton.com/rossiya/moskovskaya-oblast/knigi-i-zhurnaly/zhurnal-dress/?entityType=companies&entity=96035)  
+
 [behance.net](https://www.behance.net/gallery/129303293/Fashion-magazine-website)
 
 [dribbble.com](https://dribbble.com/shots/16653225-Fashion-magazine-website)
