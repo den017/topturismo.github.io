@@ -1,5 +1,10 @@
 # Новые добавления в каталоги организаций
 
+[zinzen.ru](https://zinzen.ru/%D0%B6%D1%83%D1%80%D0%BD%D0%B0%D0%BB-dress/)  
+[jazi.ru](https://jazi.ru/msk/orgs/59008)  
+[spravochnik-rf.ru](https://moskva.spravochnik-rf.ru/magaziny-odezhdy-i-obuvi/940911.html)  
+[eadres.ru](https://eadres.ru/listing/dress-magcom.html)  
+[machinebook.ru](https://msk.machinebook.ru/companies/96331/zhurnal-dress-)  
 [rusfirm.biz](https://rusfirm.biz/i-1388479)  
 [feech.org](https://gazety-i-jurnaly.feech.org/moskva/org/4254937)  
 [телефонырф.рф](https://xn--e1aarjenitd2e.xn--p1ai/%D1%86%D0%B5%D0%BD%D1%82%D1%80/%D0%BC%D0%BE%D1%81%D0%BA%D0%B2%D0%B0/%D1%84%D0%B8%D1%80%D0%BC%D0%B0/%D0%B6%D1%83%D1%80%D0%BD%D0%B0%D0%BB-dress)  
